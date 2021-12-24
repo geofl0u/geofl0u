@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **giwrgos.flour@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1LwxFrdIBQKmISgbRvkdM-F4HMB1YrUz4/view?usp=sharing](https://drive.google.com/file/d/1LwxFrdIBQKmISgbRvkdM-F4HMB1YrUz4/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1LXs4BRiK0Yha25K9xoT-GDW2kGNgoKm8/view?usp=sharing](https://drive.google.com/file/d/1LXs4BRiK0Yha25K9xoT-GDW2kGNgoKm8/view?usp=sharing)
 
 - ⚡ Fun fact **I am the funniest human being in my apartment**
 
